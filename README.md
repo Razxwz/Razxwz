@@ -13,10 +13,6 @@
 
 ###
 
-<div align="center">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=Razx.Razx&right_color=red"  />
-</div>
-
 ###
 
 <h1 align="center">opa deboa campeão👾</h1>
